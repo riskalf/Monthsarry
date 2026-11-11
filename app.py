@@ -29,7 +29,7 @@ Aku masih nda nyangka kita sudah sampai sejauh ini lho, sayang
 
 Rasanya masih jelas banget di ingatan aku, setahun yang lalu waktu di hokben AXC ada seorang cowok yang tiba-tiba nyamperin lalu duduk di hadapan aku, ngajak ngobrol aku, terus dia juga follow ig aku. Dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr hoho
 
-Dan yap... look at us now. Cowok yang dulu ga pernah terfikirkan buat aku ajak ngobrol aja akhirnya sekarang jadi salah satu orang yang paling aku sayang di muka bumi iniii 😝✌️ 
+And yap... somehow, the guy I never imagined I would even start a conversation with has become one of the people I love most in this world 😝✌️ 
 
 Sayaaangg, aku mau kamu tahu kalau aku bersyukur banget bisa jadi pasangan kamu. Di tengah banyaknya hal yang harus kamu pikirkan, tanggung jawab yang perlu kamu selesaikan, dan hari-hari yang mungkin terasa melelahkan, kamu tetap berusaha melibatkan aku dalam keseharian kamu. Kamu juga konsisten nyempetin waktu buat ngabarin aku dan berbagi cerita tentang apa yang sedang kamu jalani. Aku seneng banget sayang. 
 
