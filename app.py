@@ -23,7 +23,7 @@ SALAM = "Dear, Ravi Romario Nugroho"
 JUDUL = "Selamat Tanggal 11!"
 
 # Pisahkan paragraf dengan SATU BARIS KOSONG.
-ISI = """Another month of us, another month of choosing each other, and another month of loving each other.
+ISI = """Another month of us, another month of choosing each other, and another chapter of loving you.
 
 Aku masih nda nyangka kita sudah sampai sejauh ini lho, sayang
 
