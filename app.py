@@ -27,7 +27,7 @@ ISI = """Another month of us, another month of choosing each other, and another 
 
 Aku masih nda nyangka kita sudah sampai sejauh ini lho, sayang
 
-Rasanya masih jelas banget di ingatan aku, setahun yang lalu waktu di hokben AXC ada seorang cowok yang tiba-tiba nyamperin duduk di hadapan aku, ngajak aku ngobrol, terus dia juga follow ig aku. Dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr hoho
+Rasanya masih jelas banget di ingatan aku, setahun yang lalu waktu di hokben AXC ada seorang cowok yang tiba-tiba nyamperin lalu duduk di hadapan aku, ngajak ngobrol aku, terus dia juga follow ig aku. Dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr hoho
 
 Dan yap... look at us now. Cowok yang dulu ga pernah terfikirkan buat aku ajak ngobrol aja akhirnya sekarang jadi salah satu orang yang paling aku sayang di muka bumi iniii. Xixixi.
 
