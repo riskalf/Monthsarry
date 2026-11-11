@@ -402,5 +402,6 @@ s.appendChild(e)}};
 st.markdown('<div class="od"><i></i><span>♥</span><i></i></div>', unsafe_allow_html=True)
 emb(FINAL, 340,
     PESAN=html.escape(
-        f"HAHHAHA bercanda sayaanggg.. Love you! >.<"),
+        f"BENERAN???
+        WKWKW bercanda sayaanggg.. Love you! >.<"),
     TTD=html.escape(NAMA_KAMU))
