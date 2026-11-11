@@ -290,7 +290,7 @@ body{margin:0;background:transparent;font-family:var(--sans);color:var(--iv);ove
 <div class="stage" id="stage">
  <div class="glow"></div><div class="hl ra"></div><div class="hl rb"></div>
  <div class="cn">
-  <h2 class="tt">Love letter for my sayangkuu <3</h2>
+  <h2 class="tt">Love letter for Ravi Romario <3</h2>
   <div id="env" tabindex="0" role="button" aria-label="Open!">
    <div class="bk"></div><div class="lt"></div><div class="ft"></div>
    <svg class="vl" viewBox="0 0 300 200" preserveAspectRatio="none"><path d="M0 0 L150 116 L300 0 M0 200 L112 98 M300 200 L188 98" fill="none" stroke="rgba(198,166,107,.4)" stroke-width="1" vector-effect="non-scaling-stroke"/></svg>
