@@ -60,7 +60,7 @@ ISI = [p.strip() for p in ISI.strip().split("\n\n") if p.strip()]
 CINTA = "I love you, Rio. I love the person you are, the person you're becoming, and all the little things that make you uniquely you."
 PENUTUP = "♡♡♡"
 TERIMA = "Thank you for being my favorite person to love. And if I could choose all over again, I'd still want to find my way back to you."
-TTD_PRE = "Yours-"
+TTD_PRE = "-Yours💋"
 TTD = "your girl. ♡"
 
 # =====================================================
