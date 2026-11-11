@@ -27,7 +27,8 @@ ISI = """Another month of us, another month of choosing each other, and another 
 
 Aku masih nda nyangka kita sudah sampai sejauh ini lho, sayang
 
-Rasanya masih jelas banget di ingatan aku, setahun yang lalu ada seorang cowok yang tiba-tiba follow ig aku. Dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr hoho
+Rasanya masih jelas banget di ingatan aku, setahun yang lalu waktu di hokben AXC ada seorang cowok yang tiba-tiba nyamperin duduk di hadapan aku, ngajak aku ngobrol, terus ga lama setelahnya dia follow ig aku. Dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr hoho
+
 Dan yap... look at us now. Cowok yang dulu ga pernah terfikirkan buat aku ajak ngobrol aja akhirnya sekarang jadi salah satu orang yang paling aku sayang di muka bumi iniii. Xixixi.
 
 Sayaaangg, aku mau kamu tahu kalau aku bersyukur banget bisa jadi pasangan kamu. Di tengah banyaknya hal yang harus kamu pikirkan, tanggung jawab yang perlu kamu selesaikan, dan hari-hari yang mungkin terasa melelahkan, kamu tetap berusaha melibatkan aku dalam keseharianmu. Kamu tetap menyempatkan diri buat ngabarin aku, berbagi cerita, dan membiarkan aku tahu apa yang sedang kamu jalani. Aku juga melihat bagaimana kamu terus berusaha, bagaimana kamu selalu punya keinginan untuk berkembang, dan bagaimana kamu sedang membangun sesuatu yang lebih baik untuk masa depanmu. I'm genuinely proud of you, babe.
