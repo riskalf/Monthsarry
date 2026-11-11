@@ -29,7 +29,7 @@ Aku masih nda nyangka kita sudah sampai sejauh ini lho, sayang
 
 Rasanya masih jelas banget di ingatan aku, setahun yang lalu waktu di hokben AXC ada seorang cowok yang tiba-tiba nyamperin lalu duduk di hadapan aku, ngajak ngobrol aku, terus dia juga follow ig akuu hoho. 
 
-Nah dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr hoho
+Nah dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr 
 
 And yap... somehow, the guy I never imagined I would even start a conversation with has become one of the people I love most in this world 😝✌️ 
 
