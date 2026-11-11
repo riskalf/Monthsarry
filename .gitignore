@@ -1,0 +1,19 @@
+# Python
+__pycache__/
+*.py[cod]
+.venv/
+venv/
+env/
+
+# Streamlit: rahasia/API key jangan pernah di-upload
+.streamlit/secrets.toml
+
+# Editor dan sistem operasi
+.vscode/
+.idea/
+.DS_Store
+Thumbs.db
+desktop.ini
+
+# Catatan: folder foto/ sengaja TIDAK di-ignore
+# karena foto harus ikut ter-upload agar tampil di aplikasi yang sudah di-deploy.
