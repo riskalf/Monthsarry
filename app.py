@@ -37,11 +37,15 @@ Terima kasih ya, karena selama ini sudah berusaha menunjukkan seberapa besar kam
 
 Aku mungkin nggak selalu pandai menunjukkan perasaanku. Sometimes I struggle to find the right words, sometimes I overthink, and sometimes I just want to be babied a little more hehhehe. But I want you to know that I'm also learning. Aku mau terus belajar menjadi seseorang yang bisa kamu datangi ketika hari-harimu terasa berat, seseorang yang bisa kamu ajak berbagi cerita tanpa harus takut dihakimi, seseorang yang mau mendengarkan ketika kamu hanya ingin didengar, dan seseorang yang ikut merayakan setiap pencapaianmu, sekecil apa pun itu. I want to be your safe place, just as much as you are mine.
 
-Aku harap kita bisa terus belajar menjadi pasangan yang lebih baik. Bukan pasangan yang nggak pernah punya masalah, tetapi dua orang yang tetap mau saling memahami dan memperbaiki keadaan ketika semuanya nggak berjalan sesuai keinginan. I want us to keep choosing each other, not only on our happiest days, but also on the days when loving each other requires a little more patience. Semoga kita nggak pernah kehilangan keinginan untuk saling mengenal, bahkan ketika kita sudah melewati banyak hal bersama yaa sayang ♡
+Aku harap kita bisa terus belajar menjadi pasangan yang lebih baik. Bukan pasangan yang nggak pernah punya masalah, tetapi dua orang yang tetap mau saling memahami dan memperbaiki keadaan ketika semuanya nggak berjalan sesuai keinginan. I want us to keep choosing each other, not only on our happiest days, but also on the days when loving each other requires a little more patience. 
+
+Semoga kita nggak pernah kehilangan keinginan untuk saling mengenal, bahkan ketika kita sudah melewati banyak hal bersama yaa sayang ♡
 
 And about that future you've been working so hard for, I hope you know how happy it makes me to be included in it. Aku nggak sabar melihat semua hal yang sedang kamu usahakan satu per satu menjadi kenyataan. I hope one day we get to look back at these days, remembering how we started with what we had, how we struggled, how we grew, and how we made it through together. Semoga nanti kita bisa tersenyum mengingat masa-masa ketika kita masih sama-sama berjuang untuk sampai ke kehidupan yang selama ini kita impikan.
 
-For now, let's enjoy every little thing we have. More random conversations, more silly jokes, more dates, more hugs and kisses, more birthdays to celebrate, and hopefully countless more anniversaries. Aku mau menikmati setiap prosesnya sama kamu, days by days."""
+For now, let's enjoy every little thing we have. More random conversations, more silly jokes, more dates, more hugs and kisses, more birthdays to celebrate, and hopefully countless more anniversaries. 
+
+Aku mau menikmati setiap prosesnya sama kamu, days by days."""
 
 ISI = [p.strip() for p in ISI.strip().split("\n\n") if p.strip()]
 
