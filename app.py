@@ -37,7 +37,9 @@ Sayaaangg, aku mau kamu tahu kalau aku bersyukur banget bisa jadi pasangan kamu.
 
 Aku juga liat bagaimana kamu terus berusaha, bagaimana kamu selalu punya keinginan untuk berkembang, dan bagaimana kamu sedang membangun sesuatu yang lebih baik untuk masa depanmu. I'm genuinely proud of you, babe.
 
-And beyond everything you do, I want to thank you for the way you treat me and love me. Thank you for your patience, your affection, and the way you listen to all my yapping. Thank you for noticing the little things about me, trying to understand how I want to be loved, and making an effort to meet me halfway. I appreciate that you don't simply give up when things get difficult, but are willing to learn, communicate, and work things out with me. Those things make me feel loved, valued, and appreciated in ways I can't always put into words.
+And beyond everything you do, I want to thank you for the way you treat me and love me. Thank you for your patience, your affection, and the way you listen to all my yapping. Thank you for noticing the little things about me, trying to understand how I want to be loved, and making an effort to meet me halfway. 
+
+I appreciate that you don't simply give up when things get difficult, but are willing to learn, communicate, and work things out with me. Those things make me feel loved, valued, and appreciated in ways I can't always put into words.
 
 I know I may not always be the best at expressing my affection or giving you the reassurance you deserve. Sometimes I overthink, sometimes I struggle to put my feelings into words, and sometimes I just want to be babied a little. But I hope you know that I am always trying to learn how to love you better.
 
