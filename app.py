@@ -29,9 +29,9 @@ Aku masih nda nyangka kita sudah sampai sejauh ini lho, sayang
 
 Rasanya masih jelas banget di ingatan aku, setahun yang lalu waktu di hokben AXC ada seorang cowok yang tiba-tiba nyamperin lalu duduk di hadapan aku, ngajak ngobrol aku, terus dia juga follow ig akuu hoho. 
 
-Nah dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidurrr 
+Nah dari situ, dia mulai sering chat dan ngabarin aku, suka curi-curi waktu buat ngajak aku ngobrol di sela-sela kerjaan 🤭, bahkan nyempetin teleponan dan minta buat sleepcall menjelang tidur 
 
-And yap... somehow, the guy I never imagined I would even start a conversation with has become one of the people I love most in this world 😝✌️ 
+And yap... somehow, the guy I never imagined I would even start a conversation with has become one of the people I love most in this woOrlddd 😝✌️ 
 
 Sayaaangg, aku mau kamu tahu kalau aku bersyukur banget bisa jadi pasangan kamu. Di tengah banyaknya hal yang harus kamu pikirkan, tanggung jawab yang perlu kamu selesaikan, dan hari-hari yang mungkin terasa melelahkan, kamu tetap berusaha melibatkan aku dalam keseharian kamu. Kamu juga konsisten nyempetin waktu buat ngabarin aku dan berbagi cerita tentang apa yang sedang kamu jalani. Aku seneng banget sayang. 
 
@@ -47,7 +47,7 @@ Aku harap kita bisa terus belajar menjadi pasangan yang lebih baik. Bukan pasang
 
 Semoga kita nggak pernah kehilangan keinginan untuk saling mengenal, bahkan ketika kita sudah melewati banyak hal bersama yaa sayang ♡
 
-And about that future you've been working so hard for, I hope you know how happy it makes me to be included in it. Aku nggak sabar melihat semua hal yang sedang kamu usahakan satu per satu menjadi kenyataan. I hope one day we get to look back at these days, remembering how we started with what we had, how we struggled, how we grew, and how we made it through together. Semoga nanti kita bisa tersenyum mengingat masa-masa ketika kita masih sama-sama berjuang untuk sampai ke kehidupan yang selama ini kita impikan.
+And about that future you've been working so hard for, I hope you know how happy it makes me to be included in it. Aku nggak sabar melihat semua hal yang sedang kamu usahakan satu per satu menjadi kenyataan. I hope one day we get to look back at these days, remembering how we started with what we had, how we struggled, how we grew, and how we made it through together. 
 
 For now, let's enjoy every little thing we have. More random conversations, more silly jokes, more dates, more hugs and kisses, more birthdays to celebrate, and hopefully countless more anniversaries. 
 
