@@ -49,7 +49,7 @@ Semoga kita nggak pernah kehilangan keinginan untuk saling mengenal, bahkan keti
 
 And about that future you've been working so hard for, I hope you know how happy it makes me to be included in it. Aku nggak sabar melihat semua hal yang sedang kamu usahakan satu per satu menjadi kenyataan. I hope one day we get to look back at these days, remembering how we started with what we had, how we struggled, how we grew, and how we made it through together. 
 
-For now, let's enjoy every little thing we have. More random conversations, more silly jokes, more dates, more hugs and kisses, more birthdays to celebrate, and hopefully countless more anniversaries. 
+For now, let's enjoy every little thing we have. More random conversations, more silly or.. dark jokes(?), more dates, more hugs and kisses, more birthdays to celebrate, and hopefully countless more anniversaries. 
 
 Aku mau menikmati setiap prosesnya sama kamu, days by days."""
 
