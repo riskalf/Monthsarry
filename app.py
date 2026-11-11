@@ -51,7 +51,7 @@ And about that future you've been working so hard for, I hope you know how happy
 
 For now, let's enjoy every little thing we have. More random conversations, more silly or.. dark jokes(?), more dates, more hugs and kisses, more birthdays to celebrate, and hopefully countless more anniversaries. 
 
-Aku mau menikmati setiap prosesnya sama kamu, days by days."""
+Aamiin."""
 
 ISI = [p.strip() for p in ISI.strip().split("\n\n") if p.strip()]
 
