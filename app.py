@@ -336,6 +336,10 @@ L.append(hd,el("p","to rv",D.salam,1),el("h2","jd rv",D.judul,1),sp);
 D.isi.forEach(t=>L.append(el("p","bd rv",t,1)));
 L.append(el("blockquote","lv rv",D.cinta,1),el("h3","cl rv",D.penutup,1),el("p","bd it rv",D.terima,1));
 const sg=document.createElement("div");sg.className="sg";sg.append(el("span","ap rv",D.ttd_pre,1),el("span","nm rv wr",D.ttd,0));L.append(sg);
+const end = document.createElement("div");
+end.className = "end";
+end.textContent = "✦";
+L.append(end);
 sc.append(L);
 
 /* ledakan hati dan kilau emas */
