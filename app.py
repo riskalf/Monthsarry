@@ -31,7 +31,9 @@ Rasanya masih jelas banget di ingatan aku, setahun yang lalu waktu di hokben AXC
 
 Dan yap... look at us now. Cowok yang dulu ga pernah terfikirkan buat aku ajak ngobrol aja akhirnya sekarang jadi salah satu orang yang paling aku sayang di muka bumi iniii 😝✌️ 
 
-Sayaaangg, aku mau kamu tahu kalau aku bersyukur banget bisa jadi pasangan kamu. Di tengah banyaknya hal yang harus kamu pikirkan, tanggung jawab yang perlu kamu selesaikan, dan hari-hari yang mungkin terasa melelahkan, kamu tetap berusaha melibatkan aku dalam keseharianmu. Kamu tetap menyempatkan diri buat ngabarin aku, berbagi cerita, dan membiarkan aku tahu apa yang sedang kamu jalani. Aku juga melihat bagaimana kamu terus berusaha, bagaimana kamu selalu punya keinginan untuk berkembang, dan bagaimana kamu sedang membangun sesuatu yang lebih baik untuk masa depanmu. I'm genuinely proud of you, babe.
+Sayaaangg, aku mau kamu tahu kalau aku bersyukur banget bisa jadi pasangan kamu. Di tengah banyaknya hal yang harus kamu pikirkan, tanggung jawab yang perlu kamu selesaikan, dan hari-hari yang mungkin terasa melelahkan, kamu tetap berusaha melibatkan aku dalam keseharian kamu. Kamu juga konsisten nyempetin waktu buat ngabarin aku dan berbagi cerita tentang apa yang sedang kamu jalani. Aku seneng banget sayang. 
+
+Aku juga liat bagaimana kamu terus berusaha, bagaimana kamu selalu punya keinginan untuk berkembang, dan bagaimana kamu sedang membangun sesuatu yang lebih baik untuk masa depanmu. I'm genuinely proud of you, babe.
 
 Terima kasih ya, karena selama ini sudah berusaha menunjukkan seberapa besar kamu sayang sama aku. Terima kasih juga karena selalu sabar menghadapi aku, dengerin semua yapping an aku, perhatiin tiap hal-hal kecil tentang aku, dan berusaha memahami gimana aku ingin dicintai. Aku juga berterima kasih karena kamu nggak berhenti berusaha ketika ada hal-hal yang perlu kita perbaiki dalam hubungan ini. I appreciate every little effort you make, even the ones you might think I don't notice.
 
